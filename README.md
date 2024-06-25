@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=Hey+its+straight-face+._.;Currently%3A+Studying+Graphs+and+trying+to+exit+Vim;Fun+Fact+%3A+Indexing+Starts+at+Zero+and+Zero+is+a+Natural+Number)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=Hey+its+straight-face+._.;Currently%3A+Trying+to+Exit+Vim;Fun+Fact+%3A+Indexing+Starts+at+Zero+r)](https://git.io/typing-svg)
 
 ###
 
